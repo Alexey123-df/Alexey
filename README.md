@@ -1,2 +1,2 @@
 # Alexey
-I am just teacher og history
+I am just teacher of history
